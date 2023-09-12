@@ -1,0 +1,2 @@
+# ALZA_
+IKT csapatmunka
